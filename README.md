@@ -1,0 +1,2 @@
+# GoldenBeach
+bling and shiny.
